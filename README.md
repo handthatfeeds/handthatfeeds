@@ -1,7 +1,5 @@
-I love Apple sm ^_^!!
+[My goddess ochaco int🌺] I will eat Ur toes
 
-![Screenshot 2025-07-03 7 59 27 PM](https://github.com/user-attachments/assets/e4ef15c1-3439-485f-9c85-0ac4a1c219f3)
+Guys please cancel Liz.. ????
 
-<3
-
-![0458e7603cbed201ac1f1fbc64568e88 (1)](https://github.com/user-attachments/assets/5476793f-83b4-42ad-b368-1bb36a9148f4)
+![Screenshot 2025-07-05 10 18 42 PM](https://github.com/user-attachments/assets/66c43cf2-e72e-4d0d-8298-91e63102b880)
