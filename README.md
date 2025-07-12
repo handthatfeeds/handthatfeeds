@@ -1,7 +1,9 @@
-![tumblr_6d142b542c1e186b214bea64dc95385b_0bc57802_1280](https://github.com/user-attachments/assets/e480f8ff-b3b5-4743-80ec-764b30f6af91)
-![8de1c7bd55976f1f71f20d06f8340830](https://github.com/user-attachments/assets/c7bc336c-eeb2-4ecd-a4c9-ca06a23d4a54)
+<img width="1000" height="250" alt="tumblr_308859db035345b600e6992d1fa765e4_61afa40f_1280" src="https://github.com/user-attachments/assets/ec71c0cb-4865-4c63-af1a-ea6aa40995ab" />
 
-![08ea506f5fd81bb0b0e0acf7c1b65f1a](https://github.com/user-attachments/assets/9934f56f-564e-4b9a-b7a7-d31436076ac7)![wv0e7Nv](https://github.com/user-attachments/assets/df90425d-82da-4899-ba21-3dc210bd7fe0)
-![3568-tony-tony-chopper](https://github.com/user-attachments/assets/c08bdacf-45ef-4618-9238-1442802385db)
-![tumblr_4c84192a9f08bdfa74ddbe2f1d943c8c_6c6e5027_1280](https://github.com/user-attachments/assets/6a8b585a-e918-4d37-a005-1d22bd5f448a)
+![Nami, We Go!](https://github.com/user-attachments/assets/cf7323be-0f03-4974-8738-3714847f9c16)
+
+![24513e59e6ae81ba7901eaa8e73b480f](https://github.com/user-attachments/assets/b62bc1a4-a59c-4045-8f4e-3d7e14b69468)
+
+![One Piece](https://github.com/user-attachments/assets/92824aa5-123e-4a6a-8890-af0c3c408788)
+
 
