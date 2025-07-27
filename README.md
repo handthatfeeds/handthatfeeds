@@ -1,8 +1,9 @@
-![bcc72b734f51d0520ef1557fb4ced4f0](https://github.com/user-attachments/assets/4de982ea-6c68-43c5-9819-f35864b571fe)
+<img width="1128" height="150" alt="tumblr_976f1e33cb255df25d1272d0f5767b48_61048dd8_1280" src="https://github.com/user-attachments/assets/4ba18ae1-e691-4334-bdcc-23b35c3c207b" />
 
+![_ (26)](https://github.com/user-attachments/assets/73282e56-d235-4f8b-8636-4a025210fdcb)
 
-<img width="499" height="499" alt="3ab43f4908918efd11da429a5e328936-removebg-preview" src="https://github.com/user-attachments/assets/7e81478f-8bd5-45a8-abb1-ad2f20cdc628" />
+<img width="588" height="588" alt="🍦🌸Chopper pfp🌸🍦-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/af68b045-8664-4f75-956f-54f78350794b" />
 
+![_ (25)](https://github.com/user-attachments/assets/a414c788-621c-4f15-ab59-e859e18bf2dc)
 
-![One piece banner_header!!](https://github.com/user-attachments/assets/aff69401-b953-4365-902e-34e0c984b502)
-
+<img width="1128" height="150" alt="tumblr_de9f6a901ad2420447e9a77aa23e95f0_8e5fd949_1280" src="https://github.com/user-attachments/assets/f5eaf27b-1301-476f-a44c-8849fb581948" />
