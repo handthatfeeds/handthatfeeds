@@ -1,9 +1,7 @@
-<img width="1128" height="150" alt="tumblr_976f1e33cb255df25d1272d0f5767b48_61048dd8_1280" src="https://github.com/user-attachments/assets/4ba18ae1-e691-4334-bdcc-23b35c3c207b" />
+<img width="734" height="269" alt="___30_-removebg-preview" src="https://github.com/user-attachments/assets/3673b9eb-3caf-4c6c-8a11-17468f8fc615" />
 
-![_ (26)](https://github.com/user-attachments/assets/73282e56-d235-4f8b-8636-4a025210fdcb)
+<img width="674" height="370" alt="cae7485967b5e1cf65c59671421b0d7a-removebg-preview" src="https://github.com/user-attachments/assets/03e8eeb1-3b7a-4428-82ca-82a8c614a7bf" />
 
-<img width="588" height="588" alt="🍦🌸Chopper pfp🌸🍦-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/af68b045-8664-4f75-956f-54f78350794b" />
+![_ (31)](https://github.com/user-attachments/assets/edd21e96-b3ef-4010-8ac9-721c926ea651)
 
-![_ (25)](https://github.com/user-attachments/assets/a414c788-621c-4f15-ab59-e859e18bf2dc)
-
-<img width="1128" height="150" alt="tumblr_de9f6a901ad2420447e9a77aa23e95f0_8e5fd949_1280" src="https://github.com/user-attachments/assets/f5eaf27b-1301-476f-a44c-8849fb581948" />
+<img width="736" height="323" alt="download__2_-removebg-preview" src="https://github.com/user-attachments/assets/f9986aad-27ed-479c-a07f-8d2d8c7c47ec" />
